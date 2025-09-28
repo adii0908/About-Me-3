@@ -49,6 +49,6 @@
      <a href="https://tataplay.slivcdn.com/hls/live/2020591-b/TEN3HD/hdntl=exp=1750582085~acl=%2f*~id=9e40d10a-ddc8-413e-8bad-fc250d39a4c7~data=hdntl~hmac=8a461045379b43fb696b19ba5f49f38d5017755a198550f54e5d47ecd4b974ae/master_1300.m3u8">???match</a>
 
   <marquee bgcolor=90ee90> You can also contact me on my instagram Id : _uk_adii_0908
-   <a href="https://tataplay.slivcdn.com/hls/live/2020591-b/TEN3HD/hdntl=exp=1750582085~acl=%2f*~id=9e40d10a-ddc8-413e-8bad-fc250d39a4c7~data=hdntl~hmac=8a461045379b43fb696b19ba5f49f38d5017755a198550f54e5d47ecd4b974ae/master_1300.m3u8">???match</a>
+   <a href="https://cricnewspoints.pages.dev/channel-13">???match</a>
 
 
